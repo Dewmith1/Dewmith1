@@ -1,4 +1,4 @@
-# Hey im Kashyapa Dewmith
+# Hey IM Kashyapa Dewmith
 ### Contact me on Telegram [🎹 Contact me 🎸](https://t.me/IMkashyapaa)
 <p align="center">
   <img src="https://telegra.ph/file/73422b014dca50b1023e6.jpg">
